@@ -3,7 +3,10 @@
 >nagkaklase nalang for clout
 >pabigat daw sabi san nambaya
 
+<p text-align="center">
 <img src="bebegurl.jpg">
+</p>
+
 
 ## Sheena Barios
 
