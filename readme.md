@@ -1,5 +1,5 @@
 # Hakdogs forevs
-Description : >eme eme lang in life >nagkaklase nalang for clout >pabigat daw sabi san nambaya
+Description : >stroll if life aski wara motor >shares the same interest when it come to food >pabigat daw sabi san nambaya
 
 <p text-align="center">
 <img src="bebegurl.jpg">
