@@ -1,7 +1,5 @@
 # Hakdogs forevs
->eme eme lang in life
->nagkaklase nalang for clout
->pabigat daw sabi san nambaya
+>eme eme lang in life >nagkaklase nalang for clout >pabigat daw sabi san nambaya
 
 <p text-align="center">
 <img src="bebegurl.jpg">
