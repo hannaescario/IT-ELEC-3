@@ -1,4 +1,9 @@
-# 
+# Hakdogs forevs
+>eme eme lang in life
+>nagkaklase nalang for clout
+>pabigat daw sabi san nambaya
+
+<img src="bebegurl.jpg">
 
 ## Sheena Barios
 
