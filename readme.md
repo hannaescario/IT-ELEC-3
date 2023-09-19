@@ -1,5 +1,5 @@
 # Hakdogs forevs
-Description : >stroll if life aski wara motor >shares the same interest when it come to food >pabigat daw sabi san nambaya
+Description : >stroll is life aski wara motor >shares the same interest when it come to food >pabigat daw sabi san nambaya
 
 <p text-align="center">
 <img src="bebegurl.jpg">
